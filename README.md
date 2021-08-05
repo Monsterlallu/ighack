@@ -127,5 +127,8 @@ __EXIT__ :
 ## WARNING : 
 ***This tool is only for educational purpose. If you use this tool for other purposes except education we will not be responsible in such cases.***
 
+<p align="center">
+ ɪͥᴛͭsᷤ ᴍͫᴇͤ☚⃟፝✪͜͡𝐌𝐎𝐍𝐒𝐓𝐄𝐑 𝐋𝐀𝐋𝐋𝐔≛⃝𝗢𝗚⁩≛⃝🇦🇴𝗦𝗜𝗡𝗖𝗘 2020≛⃝🇦🇴
+<p align="center">
+By ARAKKAL MONSTER LALLU
 
-By MONSTER LALLU
